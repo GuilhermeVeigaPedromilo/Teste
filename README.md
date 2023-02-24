@@ -1,3 +1,3 @@
 # Teste-João-2023-Senai
-## Abobrinha
+## Abobrinha Refogada
 ###### 24/02/2023
